@@ -1,0 +1,2 @@
+# sammutus
+koulussa
